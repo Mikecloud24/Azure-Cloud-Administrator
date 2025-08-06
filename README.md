@@ -12,4 +12,7 @@
 
 - You can explore the materials
 
+- If you have any question, please feel free to contact me.
+- Thank you! 
+
 - Don't stop learning...
